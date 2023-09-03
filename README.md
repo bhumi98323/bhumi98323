@@ -1,1 +1,1 @@
-I am a passionate graphic design and web developer, and I love to learn new things. I have a strong interest in Java Programming, Database, and other technologies that can make our lives easier. My passion for software lies in dreaming up ideas and making them come true with elegant interfaces
+
